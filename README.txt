@@ -1,0 +1,2 @@
+This virus will download txt files and shutdown computer.
+Only use this virus on people that have given you permission. I am not responsible for any harm or damage made with this virus. Dont use in school, work or any other public places. Use with common sense.
